@@ -1,1 +1,0 @@
-# ishamada.github.io
